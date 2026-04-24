@@ -1,5 +1,5 @@
-# 💫 Hi 👋, I'm Imran Alam
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+# 💫 Hi 👋, I'm Guddu
+**A passionate MERN STACK DEVELOPER **
 
 Email Me 👉 ✉️ **sahguddu164@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
