@@ -9,7 +9,6 @@ Email Me 👉 ✉️ **sahguddu164@gmail.com** For Collaboration/Project or Anyt
 - 🤔 **I’m looking for help with:** SkillGap analizer and placement Intelligence
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** sahguddu164@gmail.com
-- 😄 **Pronouns:** Guddu Bhaiya 
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/guddusah002) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:sahguddu164@gmail.com) 
